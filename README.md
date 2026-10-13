@@ -1,0 +1,2 @@
+# premium-shakuhachi-001-shakuhachi-bamboo-flute-buildi
+Tired of shakuhachis that cost a fortune but still sound flat or out of tune? This lab gives you the exact blueprint to build and tune your own bamboo flute to concert pitch—without guesswork or expensive tools.  The Shakuhachi Bamboo Flute Building &amp; Tuning Lab solves the two biggest frustrations of DIY shakuhachi makers: inconsistent tuning and p
